@@ -1,0 +1,3 @@
+Hey! I'm a student and have a bit of knowledge of HTML,CSS and Javascript.
+I'm here to upload and review some projects of mine, you can see them and review them too!
+Check my profile for more...
